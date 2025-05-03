@@ -21,5 +21,5 @@ If you want support me
 DA - https://www.donationalerts.com/r/maxgame1760
 
 For 2-nd file write to me on X(twitter): MGame1760
-Or on mail: maxgame1760@gmail.com
+Or on email: maxgame1760@gmail.com
 
